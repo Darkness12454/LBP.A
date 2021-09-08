@@ -5,7 +5,7 @@ Tanner Sims: u1159642, tannerjeffreysims@gmail.com
 <br>
 Ethan Burrows: u1102916, ethandburrows@gmail.com
 <br>
-Lass Omar: u1179231, u1179231@utah.edu
+Lass Omar: u1179231, smeekly23@gmail.com
 <br>
 
 ## Introduction 
